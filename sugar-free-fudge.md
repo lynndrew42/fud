@@ -1,6 +1,6 @@
 # Sugar free fudge
 
-* Recipe found originally [here](https://thesugarfreediva.com/fabulous-sugar-free-fudge/) thanks Bruce :)
+* Recipe found originally [here](https://thesugarfreediva.com/fabulous-sugar-free-fudge/) - thanks Bruce :)
 
 ## Ingredients
 
